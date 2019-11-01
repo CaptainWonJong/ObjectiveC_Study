@@ -8,3 +8,5 @@ https://medium.com/@codesquad_yoda/%EC%8B%9C%EC%9E%91%ED%95%98%EB%8A%94-%EC%8A%A
 
 강좌  
 https://www.youtube.com/watch?v=dzv8L5lKsuk&list=PL9mhQYIlKEhfQ7c8C6IJyJXMkCMthUshS
+
+예전에 KT 있을 때 공부했었던 것
